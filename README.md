@@ -72,7 +72,7 @@ I’m interested in opportunities where I can keep developing as a security prac
 
 - [LinkedIn](https://linkedin.com/in/bibekghimire33)
 - [GitHub](https://github.com/Beebek-G)
-- Email: ghimirebibek0227@gmail.com
+- Email: bibekghimire.contact@gmail.com
 
 ---
 
